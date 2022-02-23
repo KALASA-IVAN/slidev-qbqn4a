@@ -107,12 +107,12 @@ h1 {
 
 ---
 - ## Creating More Employment Opportunities 
-Finding a job is not easy, especially in times of economic turmoil. You often need to compete with hundreds of other candidates for a vacant position. However, with the right  qualifications and educational background, you will increase your chances of landing a fulfilling job. 
-<br>
+Finding a job is not easy, especially in times of economic turmoil. You often need to compete with hundreds of other candidates for a vacant position. However, with the right  qualifications and educational background, you will increase your chances of landing a fulfilling job.
 
 - ## Securing a Higher Income
 People with higher education and varied experience are more likely to get high-paying, expert jobs.Study hard, dedicate your time and effort to acquire knowledge and reach a high level of competence if you would like to lead a comfortable lifestyle.
 
+- ## Developing Problem-solving Skills 
 ---
 layout: center
 
