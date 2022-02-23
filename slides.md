@@ -64,7 +64,7 @@ Read more about [Real Education](https://leverageedu.com/blog/what-is-education/
 <br>
 <br>
 
-- ### 📝 Creating More Employment Opportunities
+- ### 📝 Creating More Employment Opportunitiesn:  
 
 - ### 🎨 Securing a Higher Income
 
@@ -102,7 +102,11 @@ h1 {
   -moz-text-fill-color: transparent;
 }
 </style>
+---
+- ### 📝 Creating More Employment Opportunitiesn:  
 
+---
+- ## Creating More Employment Opportunitiesn:  
 ---
 layout: center
 
