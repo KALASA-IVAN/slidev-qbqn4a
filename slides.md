@@ -121,7 +121,7 @@ One of the benefits of education is that the educational system teaches us how t
 People with good academic and educational backgrounds tend to get well-paid jobs. Education helps countries grow economically since it is about getting knowledge and being able to apply it wisely to our lives and, at the same time, improving other people’s lives.
 
 - ## Providing a Prosperous and Happy Life to citizens.
-People with higher education and varied experience are more likely to get high-paying, expert jobs.Study hard, dedicate your time and effort to acquire knowledge and reach a high level of competence if you would like to lead a comfortable lifestyle.
+Education has always secured respect from society. In order to ensure a comfortable lifestyle, people should educate themselves and obtain a well-paid job to be successful and satisfied. It helps gain a better reputation and increases the chances of climbing the career ladder more easily and faster. 
 
 - ## Developing Problem-solving Skills 
 One of the benefits of education is that the educational system teaches us how to obtain and develop critical and logical thinking and make independent decisions. Not only are people able to form their own opinions, but they are also good at finding solid and reliable arguments and evidence to back up and confirm their decisions.
