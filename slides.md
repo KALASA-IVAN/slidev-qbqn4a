@@ -126,8 +126,8 @@ Education has always secured respect from society. In order to ensure a comforta
 - ## Giving Back to the Community.
  Educated people understand how valuable it is to live in a stable and secure community. They are more prone to taking part in projects that help improve not only their neighborhood but society, as well. 
 
-- ## Improving the the country's Economy 
-People with good academic and educational backgrounds tend to get well-paid jobs. Education helps countries grow economically since it is about getting knowledge and being able to apply it wisely to our lives and, at the same time, improving other people’s lives.
+- ## Creating Modern Society.
+Education is of key essence for modern society. One needs to learn about culture, history and other important aspects so that they would be able to contribute to modern society.
 
 ---
 layout: center
