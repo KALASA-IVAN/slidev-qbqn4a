@@ -123,7 +123,7 @@ People with good academic and educational backgrounds tend to get well-paid jobs
 - ## Providing a Prosperous and Happy Life to citizens.
 Education has always secured respect from society. In order to ensure a comfortable lifestyle, people should educate themselves and obtain a well-paid job to be successful and satisfied. It helps gain a better reputation and increases the chances of climbing the career ladder more easily and faster. 
 
-- ## Developing Problem-solving Skills 
+- ## Giving Back to the Community.
 One of the benefits of education is that the educational system teaches us how to obtain and develop critical and logical thinking and make independent decisions. Not only are people able to form their own opinions, but they are also good at finding solid and reliable arguments and evidence to back up and confirm their decisions.
 
 - ## Improving the the country's Economy 
