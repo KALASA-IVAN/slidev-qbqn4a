@@ -124,7 +124,7 @@ People with good academic and educational backgrounds tend to get well-paid jobs
 Education has always secured respect from society. In order to ensure a comfortable lifestyle, people should educate themselves and obtain a well-paid job to be successful and satisfied. It helps gain a better reputation and increases the chances of climbing the career ladder more easily and faster. 
 
 - ## Giving Back to the Community.
-One of the benefits of education is that the educational system teaches us how to obtain and develop critical and logical thinking and make independent decisions. Not only are people able to form their own opinions, but they are also good at finding solid and reliable arguments and evidence to back up and confirm their decisions.
+ Educated people understand how valuable it is to live in a stable and secure community. They are more prone to taking part in projects that help improve not only their neighborhood but society, as well. 
 
 - ## Improving the the country's Economy 
 People with good academic and educational backgrounds tend to get well-paid jobs. Education helps countries grow economically since it is about getting knowledge and being able to apply it wisely to our lives and, at the same time, improving other people’s lives.
