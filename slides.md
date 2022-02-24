@@ -126,6 +126,17 @@ Education has always secured respect from society. In order to ensure a comforta
 - ## Giving Back to the Community.
  Educated people understand how valuable it is to live in a stable and secure community. They are more prone to taking part in projects that help improve not only their neighborhood but society, as well. 
 
+---
+---
+- ## Creating Modern Society.
+Education is of key essence for modern society. One needs to learn about culture, history and other important aspects so that they would be able to contribute to modern society. Educated people can easily differentiate between right and wrong, thus education helps reduce the crime rate. 
+
+- ##  Bridging the Borders
+Digital education helps connect with people and organizations around the world. Being able to communicate and share opinions with people from other countries and cultures, widens horizons and helps us understand and appreciate each other. 
+
+- ## Giving Back to the Community.
+ Educated people understand how valuable it is to live in a stable and secure community. They are more prone to taking part in projects that help improve not only their neighborhood but society, as well. 
+
 - ## Creating Modern Society.
 Education is of key essence for modern society. One needs to learn about culture, history and other important aspects so that they would be able to contribute to modern society.
 
